@@ -37,7 +37,6 @@ Method
 2 Add the eggs, one at a time, mixing for 30 seconds each. Add the vanilla and beat in thoroughly.
 3 In a separate bowl, whisk together the flour, baking powder, salt, and espresso powder if using. Mix into the chocolate mixture on low speed until just combined. Do not overbeat. Cover the dough with plastic wrap and chill the dough for four hours or overnight.
 4 Preheat the oven to 350°F and line two baking sheets with parchment paper. Place the confectioner's sugar in a wide bowl. Using a rounded teaspoon get clumps of the chilled dough and roll them into 1-inch (2.5 cm) sized balls using your hands. Roll the balls in the confectioner's sugar and place on the cookie sheets (you should be able to get 12-16 on each sheet). Bake for 10-12 minutes. Allow to cool a minute or two on the sheets before transferring to a wire rack to cool completely.
-
 CONTENT
 
 post4.save
